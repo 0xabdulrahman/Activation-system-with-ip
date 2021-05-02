@@ -1,0 +1,1 @@
+all rights to @0xabdulrahman on Github .
